@@ -3,15 +3,4 @@ dfsdfsdf
 sdffsdsdfasdsaadfsdfsdfsdfsdfsdf
 sdfsdfsfdfsddfs
 sdfsdйцуйцуswqeqweqwe
-aasdffsdsfйцууцй
-qweeqweqwwqeqw
-qweqweqweqwe
-qwewqweqwqweqweewq
-eeqweqwqqweqweweq
-qweqweqeweqwqweqweqwe
-wqeweqewqewqqweqwewq
-qweqweqweqwqweqwe
-qweqeweqwqew
-ertertertertert йц  йй  ц
-    йц  йцqweqweqwqewqweqwe
-    qweeqwweqqew
+qwewqeweq
