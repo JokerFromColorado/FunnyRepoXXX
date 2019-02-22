@@ -4,7 +4,4 @@ sdffsdsdfasdsaadfsdfsdfsdfsdfsdf
 sdfsdfsfdfsddfs
 sdfsdйцуйцуswqeqweqwe
 aasdffsdsfйцууцй
-wwwwwrewe
-wqeqweqweqweqweew
-werwerweradsasd
-qweqwqweqweqwe
+qweeqweqw
