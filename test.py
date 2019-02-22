@@ -6,10 +6,4 @@ sdfsdйцуйцуswqeqweqwe
 aasdffsdsfйцууцй
 wwwwwrewe
 wqeqweqweqweqweew
-wqeqweqweqwe
-qweqerwre
-ewwerewrwerrwe
-qwe
-qw
-e
-qweqwe
+werwerwer
