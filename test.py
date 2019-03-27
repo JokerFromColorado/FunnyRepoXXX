@@ -2,16 +2,4 @@ ewqwsdasd
 dfsdfsdf
 sdfsdfsdfsdf
 asd
-sadadsadsadseqqwe
-qweqweqweqwe
-qweqwqweqweeqwqweqwe
-qweqwweeqw
-qweewqцукцукцук
-кцукцукцуйцуйцу
-йуцйцйцууцййуц
-уйцйуцывффывфывqwewqeqwe
-qweqweasdasd
-asdadsadsads
-sdf
-фывфывфвыqwqweqwe
-qweweqqweqweqwqweqweqwe
+sadadsadsadwerwerwrerwe
