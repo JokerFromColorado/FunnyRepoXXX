@@ -4,15 +4,5 @@ dassaddasads
 ewqeqweqw
 sAdasdasd
 ads
-qweqeweqwqewqweq
-wqeqewqwqeeqwasddas
-adsasdsaddsaqweqwe
-weqweqewqweqeqw
-qweqewqewqweqwe
-weqqewqweqwe
-qewqeweqwqweewq
-qweweqqweasdasd
-wqeweqeqwqewewq
-
-qweqwфывфыв
-йцуцйцуйцуй
+qwqewwqeewwqe
+wqwqeweq
